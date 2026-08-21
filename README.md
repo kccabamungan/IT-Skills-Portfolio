@@ -7,7 +7,7 @@ One architecture that struck me the most is the regional heritage and atmospheri
 
 I approach design through deep socio-cultural research and passive climate strategies. I believe in using natural light, environmental shading, and honest materials such as exposed concrete and wood, to create harmonious, human-centered spaces.
 
-To find out more about me, more details can be seen in Activity 1.
+To find out more about me, more details can be seen in Activity 1 below my Brand Assets.
 # Brand Assets
 <table>
   <tr>
